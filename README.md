@@ -11,3 +11,5 @@ GitHub : https://github.com/sunny8080/
 
 
 My Linkedin Post / Oath : https://www.linkedin.com/posts/sunny8080_revisewitharsh-6companies30days-opportunity-activity-7015434399856951296-Tckv/?utm_source=share&utm_medium=member_desktop
+
+# Completed 6Copanies-30-Days-Challenge on 30-01-2023
